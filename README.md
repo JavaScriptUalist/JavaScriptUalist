@@ -47,7 +47,7 @@
 
 ## 📬 Me contacter
 
-📧 **Email** : jonathan.dev@example.com  
+📧 **Email** : koamiaziagbegnon@gmail.com  
 🔗 **LinkedIn** : [linkedin.com/in/aziagbegnon](https://linkedin.com/in/aziagbegnon)  
 🌐 **Portfolio** : [à venir…]
 
